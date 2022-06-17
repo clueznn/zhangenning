@@ -13,6 +13,7 @@
 
 [辽宁大学官方网站报道](https://web.archive.org/web/20211006235310/http://hqfzjt.lnu.edu.cn/info/13157/69538.htm)
 ![](https://web.archive.org/web/20211006235310im_/http://hqfzjt.lnu.edu.cn/images/17/03/08/1qxbpskdl1/15aabb266ee.JPG)
+![](15aabb266ee.jpeg)
 
 ## 张恩宁（张鸿杰的儿子）
 张恩宁原名张程泰。
